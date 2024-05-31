@@ -1,0 +1,6 @@
+- 🎀 hi, i’m @layliibug
+- 🍓 i’m interested in becoming a software designer for video games!
+- 👾 i’m currently learning game design!
+- 💒 i’m looking to collaborate on ...
+- 💌 how to reach me: layrevans@gmail.com
+- 🧛🏻‍♀️ pronouns: she/her
